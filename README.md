@@ -7,3 +7,5 @@ yes
 So in 8th grade or so we found eaCH OTHERA over facebook and became friends again yay skype and 
 his mom remairede and he airstsfotso now with his greenhotrnedt and wantnede a gayming pc so  he got juan and we
 leik to play arma k bye ahve fun love me
+okay am contineue this stoy hue hue hue
+nvm
