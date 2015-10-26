@@ -13,3 +13,5 @@ Okay nevermind about that nevermind. Right now Adam is sick and I think he is st
 Also, notice how most of Adam's family has A's in their name. Axl. Adamn. Alex.
 
 falin leik dat gropcies okay so adam fels badtosday less seick but al;so throuat pain still feall pain still yes we gort micspamming 2 workd 2day exx dee k also were goeting back into cs:go. Is fun. We are now going to play GMOD Prop Hunt. It is 9:32pm 10/24/2015. Today I also went to the mall with my sister and her daughter my niece Riley. We went trick or treating. I should be getting paid about $10 for following along.
+
+Today is Sunday 10/25/2015 10:46 pm. Adam is doing something. Today he feels almost better, but still pretty sick. He has noticed cracks on his tongue, a fissured tongue. He doesn't know if he is going to school tomorrow, since he is still sick and feels bad, but he also has a lot of missing assignments or something. I hope for the best. Signing off now.
