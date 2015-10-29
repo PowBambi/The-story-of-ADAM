@@ -17,3 +17,5 @@ falin leik dat gropcies okay so adam fels badtosday less seick but al;so throuat
 Today is Sunday 10/25/2015 10:46 pm. Adam is doing something. Today he feels almost better, but still pretty sick. He has noticed cracks on his tongue, a fissured tongue. He doesn't know if he is going to school tomorrow, since he is still sick and feels bad, but he also has a lot of missing assignments or something. I hope for the best. Signing off now.
 
 Its Tuesday 10/27/2015. 8:32 am in french class. Adam felt bad yesterday because His girlfriend, Lily, never really acknolwlesdges him. It's complitcated. He is going to confront her today. There is this kid from the UK at his school, and everyone loves him. Mostly the girls. He dresses like a normal fag, and he is also gay. Adam says He's short. This kid is a problem. The only reason he is popular is because he's gay and from a different country. He is only visiting, and all he does is disrupt class and stays on his phone. Signing off now.
+
+adam is sad now
