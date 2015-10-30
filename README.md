@@ -19,3 +19,5 @@ Today is Sunday 10/25/2015 10:46 pm. Adam is doing something. Today he feels alm
 Its Tuesday 10/27/2015. 8:32 am in french class. Adam felt bad yesterday because His girlfriend, Lily, never really acknolwlesdges him. It's complitcated. He is going to confront her today. There is this kid from the UK at his school, and everyone loves him. Mostly the girls. He dresses like a normal fag, and he is also gay. Adam says He's short. This kid is a problem. The only reason he is popular is because he's gay and from a different country. He is only visiting, and all he does is disrupt class and stays on his phone. Signing off now.
 
 adam is sad now
+
+It's 10/30/15 8:24 AM, The other day Adam was really sad. I should have put a date. He felt like he was drowning in assignments. I talked to him and did a few. Last night we also did one. He's talked with trevor. He and Lily might break up, he put things reminding of her in a shoe box. He also took sad music and removed it from his spotify. I think this will help. k now hav 2 go finish gay powerpoint k bye 
