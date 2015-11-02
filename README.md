@@ -21,3 +21,5 @@ Its Tuesday 10/27/2015. 8:32 am in french class. Adam felt bad yesterday because
 adam is sad now
 
 It's 10/30/15 8:24 AM, The other day Adam was really sad. I should have put a date. He felt like he was drowning in assignments. I talked to him and did a few. Last night we also did one. He's talked with trevor. He and Lily might break up, he put things reminding of her in a shoe box. He also took sad music and removed it from his spotify. I think this will help. k now hav 2 go finish gay powerpoint k bye 
+
+11/2/14 7:47 am Adam is feeling better, Lilly left him, he downloaded GTA 5 and he needed a damn code. He downloaded a torrent last night and unpacked it throughout the night. I am hoping it works. During halloween, I went to a big party. Saw boobs. Was cold. k bye
