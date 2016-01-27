@@ -46,3 +46,5 @@ Okay so it's the same day. During the winter break, adam and I saw the Force Awa
  Last night Adam spent 50 minutes trying to make ghostler buttons and raged on an old macbook.
 
 1/25/16, 12:36 pm In science class. Yesturday Adam and I went Airsoft. Was really good, only used pistols, but had fun. Got shot a lot. Was cold and hungry. Spoke russian. We also went to Highland Park elementary
+
+1/27/16, 12:48 pm, In science class, Adam messaged me on his phone to change his steam password until he gets all of his assingments in. I'll do it when I get home, I feel proud of him. I also will change the email password, since he can change the steam password if he wanted.
