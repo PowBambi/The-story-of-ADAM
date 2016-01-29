@@ -50,3 +50,5 @@ Okay so it's the same day. During the winter break, adam and I saw the Force Awa
 1/27/16, 12:48 pm, In science class, Adam messaged me on his phone to change his steam password until he gets all of his assingments in. I'll do it when I get home, I feel proud of him. I also will change the email password, since he can change the steam password if he wanted.
 
 1/28/16 1:10 pm. In journalism class, have gym next period at 1:25. So I locked adam out yesterday, I couldn't do it to his email, but he won't get in he tells me. Adam did some work but also browsed facebook. Lets hope I don't have to keep steam locked for too long
+
+1/29/16 going to dads tonight. Hopefully I don't forget to push. Last night Adam actually did all of his assigments so I gave his account back, so good for him. Bye now.
