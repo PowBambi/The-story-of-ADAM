@@ -52,3 +52,5 @@ Okay so it's the same day. During the winter break, adam and I saw the Force Awa
 1/28/16 1:10 pm. In journalism class, have gym next period at 1:25. So I locked adam out yesterday, I couldn't do it to his email, but he won't get in he tells me. Adam did some work but also browsed facebook. Lets hope I don't have to keep steam locked for too long
 
 1/29/16 going to dads tonight. Hopefully I don't forget to push. Last night Adam actually did all of his assigments so I gave his account back, so good for him. Bye now.
+
+Time to push 1 month later. 2/29/16. It's leap day. Adam and I played airsoft, we did a lot, not that much still though. I don't really want to keep updating this. This will probably be one of the, if not then the last time. It's been fun. Not really. I think I will have alot more fun shitposting.
