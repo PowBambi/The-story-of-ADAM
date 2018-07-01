@@ -54,3 +54,6 @@ Okay so it's the same day. During the winter break, adam and I saw the Force Awa
 1/29/16 going to dads tonight. Hopefully I don't forget to push. Last night Adam actually did all of his assigments so I gave his account back, so good for him. Bye now.
 
 Time to push 1 month later. 2/29/16. It's leap day. Adam and I played airsoft, we did a lot, not that much still though. I don't really want to keep updating this. This will probably be one of the, if not then the last time. It's been fun. Not really. I think I will have alot more fun shitposting.
+
+7/1/18 well boys im gonna be a senior this semester. Adam and I have fallen off. He was one of my greatest friends and I wont forget him. he wants to kick my ass for some reason. 
+in other news, I did have a lot of fun shitposting. Time flies so fast 
